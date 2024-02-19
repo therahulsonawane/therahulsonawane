@@ -1,4 +1,3 @@
-<img align="left" height="200" src="https://media.licdn.com/dms/image/D5603AQH5xA6ztDXhtA/profile-displayphoto-shrink_400_400/0/1705048164673?e=1714003200&v=beta&t=tO0HkeR9xQLUlhOiJxMCFtvlV1QNSa8LoW7N8MgyRbo"  />
 
 ###
 
